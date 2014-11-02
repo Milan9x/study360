@@ -11,4 +11,4 @@ prepare student with fun interactive way of exam
 **This Project is under active development. Possibility of application crush due to error.**
 
 ### And more?
-having suggesstion for comment? Connect me on twitter [@titas9x](http://twitter.com/titas9x).
+having suggesstion for comment? Connect me on twitter [@milan9x](http://twitter.com/milan9x).
